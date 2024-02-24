@@ -1,3 +1,3 @@
-# AD22-Crack
+# AD24-Crack
 
-Altium Designer 22 Crack files & License
+Altium Designer 19+ Crack files & License
