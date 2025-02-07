@@ -1,3 +1,3 @@
-# AD24-Crack
+# AD Crack Files
 
-Altium Designer 19+ Crack files & License
+Altium D* v19+ Crack files & Activated License.
